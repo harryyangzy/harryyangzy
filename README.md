@@ -5,3 +5,5 @@ But, I've got big dreams of becoming so much more. Graphic design is my passion 
 Throughout high school I've led several councils and organizations, from the Athletic Council to CREATE Markham I love to put myself out there and am seeking opportunities in London where I can leverage my experience and skills in design to drive positive change within our community!
 
 Feel free to reach out anytime at hyang746@uwo.ca 😁
+
+see my work @ harryyang.ca!
